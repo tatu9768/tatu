@@ -1,10 +1,6 @@
 adsdsadsad
 fgdsfsdf
 DSADASs
-tsrgrgseafwe
-tgrtgrgfghg
-hjjfhf
-jghjfghgf
-gfgsfgfd
+tsrgrgseafw
 gfdhghjcgjcgj
 gfgzddfSFFD
